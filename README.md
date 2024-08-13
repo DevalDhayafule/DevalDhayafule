@@ -4,8 +4,7 @@
 - 💞️ I’m looking to collaborate on projects related to data analysis, financial planning, and language learning.
 - 📫 How to reach me: 
   - Email: deval58@gmail.com
-  - WhatsApp: +91-880-515-1414
-  - Germany contact number: +49-176866-73033
+  - WhatsApp contact number: +49-176866-73033
 - 😄 Pronouns: He/him.
 - ⚡ Fun fact: I'm an avid enthusiast of bikes, cars, science, and stock markets, always up for discussions on these topics!
 
