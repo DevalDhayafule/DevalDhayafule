@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Mr. Deval Arun Dhayafule.
 - 👀 I’m interested in data analytics, finance, German language, cooking, swimming, cycling, photography, running, and traveling.
-- 🌱 I’m currently learning German language (aiming for C1 level proficiency) and mastering data analytics and information management systems.
+- 🌱 I’m currently learning German language (aiming for C1 level proficiency) and mastering data analytics and information systems management.
 - 💞️ I’m looking to collaborate on projects related to data analysis, financial planning, and language learning.
 - 📫 How to reach me: 
   - Email: deval58@gmail.com
